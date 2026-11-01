@@ -1,1 +1,1 @@
-https://dodopizzq.github.io/zhizhin_24lab/
+https://jindrich0.github.io/IPlab24/
